@@ -129,6 +129,6 @@ Check out the live demo of the portfolio [here](https://muhammedmahmoud-portfoli
 Feel free to reach out via the contact form on the website or connect with me on:
 
 -   **GitHub**: [MuhammedMahmoud0](https://github.com/MuhammedMahmoud0)
--   **Email**: Use the contact form on the portfolio for direct communication.
+-   **Email**: [MuhammedMahmoud091](muhammedmahmoud091@gmail.com)
 
 Thanks for visiting my portfolio!
